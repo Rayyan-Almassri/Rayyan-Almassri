@@ -1,4 +1,4 @@
-# Hi, I'm Rayyan  
+# Hi, I'm Rayyan Almassri
 
 🎓 2nd Year Computer Science Student  
 
